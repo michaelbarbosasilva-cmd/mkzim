@@ -1,1 +1,1 @@
-# mkzim
+# mkzim "O teu ponto de encontro definitivo com o universo dos animes! Descobre análises detalhadas, teorias impressionantes, novidades da temporada e debates sobre as batalhas mais épicas da história dos mangás e animes. Junta-te à nossa comunidade e eleva o teu poder de luta!"
